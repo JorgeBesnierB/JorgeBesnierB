@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **jorgebesnierb@outlook.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/jorgebesnierb/](https://www.linkedin.com/in/jorgebesnierb/)
+- 📄 Know about my experiences [LinkedIn](https://www.linkedin.com/in/jorgebesnierb/)
 
 - ⚡ Fun fact **I like outdoors.**
 
